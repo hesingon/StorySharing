@@ -3,6 +3,7 @@
 记录并分享一下我一周所看过的有趣的网页和见闻。
 
 ## 当你的项目队友是死忠粉
+
 我的一个EE学妹即将迎来她的presentation答辩，然而她发现自己的队友都是动漫狂热粉,对此她形容为"fetishes for Japanese anime"。无奈的她只能在自己的instagram story里描述了一通自己的与他们合作期间的“惨痛经历”。
 
 <img src="images/huijuan1.PNG" />
@@ -15,6 +16,7 @@
 
 
 ## 攀岩的最高境界
+
 [How I climbed a 3,000-foot vertical cliff — without ropes](https://www.ted.com/talks/alex_honnold_how_i_climbed_a_3_000_foot_vertical_cliff_without_ropes/transcript)
 
 经常去大学游泳池的我总是会路过University Sports Hall攀岩那里，而且我能见到一大帮攀岩俱乐部的人，据我观察他们好像一周起码有四天都有在一起攀岩。哇怎么有这么多人一起这么勤劳的玩这个攀岩，我大一的时候也有一门RVRC的课给我们请了攀岩老师教我们攀岩，但好像也没这么好玩吧？出于好奇我在网上搜了下关于攀岩的信息，然后看到了这个视频。
@@ -26,7 +28,8 @@
 <em>“Climbing Half Dome had been a big goal and I did it, but I didn't get what I really wanted. I didn't achieve mastery. I was hesitant and afraid, and it wasn't the experience that I wanted. But El Cap was different. With 600 feet to go, I felt like the mountain was offering me a victory lap. I climbed with a smooth precision and enjoyed the sounds of the birds swooping around the cliff. It all felt like a celebration. And then I reached the summit after three hours and 56 minutes of glorious climbing. It was the climb that I wanted, and it felt like mastery. ”</em>  <div style="text-align: right"> ---- Alex Honnold </div>
 
 
-##不一般的赏画网站 
+## 不一般的赏画网站 
+
 [The complete works Vermeer's 36 paintings all in one place](https://artsandculture.google.com/project/vermeer-paintings)
 
 <img src="images/paintings.PNG" />
@@ -37,6 +40,7 @@
 
 
 ## 小黄球过关
+
 [The Lucky Yellow Marble](https://youtu.be/ytV76_ZWprQ)
 
 ![](https://img.youtube.com/vi/ytV76_ZWprQ/hqdefault.jpg)

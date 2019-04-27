@@ -6,6 +6,7 @@
 我的一个EE学妹即将迎来她的presentation答辩，然而她发现自己的队友都是动漫狂热粉,对此她形容为"fetishes for Japanese anime"。无奈的她只能在自己的instagram story里描述了一通自己的与他们合作期间的“惨痛经历”。
 
 ![](images/huijuan1.png)
+<img src="images/huijuan1.png" >
 ![](images/huijuan2.png)
 ![](images/huijuan3.png)
 ![](images/huijuan4.png)

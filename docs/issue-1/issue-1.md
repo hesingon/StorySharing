@@ -63,6 +63,6 @@
 
 1. Doing what you love to do is a privilege, not an expectation. If you want to do what you love, you potentially have to work 3 times as hard to fight for it.
 
-2. Habit shapes who you are. Habits start from a change of action. If this action is relocated over a week, you may notice a slight difference; if this action is replicated over a year, then you may not even recognise yourself any more.
+2. Habit shapes who you are. Habits start from a change of action. If this action is replicated over a week, you may notice a slight difference; if this action is replicated over a year, then you may not even recognise yourself any more.
 
-3. The best ideas come through ease, the best flows happens in moments of joy.
+3. The best ideas come through ease, the best flows happen in moments of joy.

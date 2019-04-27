@@ -23,7 +23,7 @@
 
 ![](https://img.youtube.com/vi/3-wjmIFlnNo/hqdefault.jpg)
 
-极限运动视频里那些徒手攀岩，不带任何保护器械的人并不是随随便便就能爬巨峰的。这位从孩童时期就开始练习，已经有二十年攀岩经历的大哥也是多次反复爬了El Capitan，才终于敢丢下器械放手一爬的。不过，也许这位攀岩大哥更紧张的是帮他记录过程的摄像师好友们。看了这个[视频](https://www.youtube.com/watch?v=3-wjmIFlnNo)你就体会到他们紧张的心情，因为尽管经验丰富，这位大哥还是随时有可能就会像国内的那位[吴永宁](https://baike.baidu.com/item/%E5%90%B4%E6%B0%B8%E5%AE%81/22246529)一样坠下一去无回。
+极限运动视频里那些徒手攀岩，不带任何保护器械的人并不是随随便便就能爬巨峰的。这位从孩童时期就开始练习，已经有二十年攀岩经历的大哥也是多次反复爬了El Capitan，才终于敢丢下器械放手一爬的。不过，也许比这位攀岩大哥更紧张的是帮他记录整个过程的摄像师好友们。看了这个[视频](https://www.youtube.com/watch?v=3-wjmIFlnNo)你就体会到他们紧张的心情，因为尽管经验丰富，这位大哥还是随时有可能就会像国内的那位[吴永宁](https://baike.baidu.com/item/%E5%90%B4%E6%B0%B8%E5%AE%81/22246529)一样坠下一去无回。
 
 <em>“Climbing Half Dome had been a big goal and I did it, but I didn't get what I really wanted. I didn't achieve mastery. I was hesitant and afraid, and it wasn't the experience that I wanted. But El Cap was different. With 600 feet to go, I felt like the mountain was offering me a victory lap. I climbed with a smooth precision and enjoyed the sounds of the birds swooping around the cliff. It all felt like a celebration. And then I reached the summit after three hours and 56 minutes of glorious climbing. It was the climb that I wanted, and it felt like mastery. ”</em>  <div style="text-align: right"> ---- Alex Honnold </div>
 

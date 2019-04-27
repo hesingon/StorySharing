@@ -5,14 +5,13 @@
 ## 当你的项目队友是死忠粉
 我的一个EE学妹即将迎来她的presentation答辩，然而她发现自己的队友都是动漫狂热粉,对此她形容为"fetishes for Japanese anime"。无奈的她只能在自己的instagram story里描述了一通自己的与他们合作期间的“惨痛经历”。
 
-![](images/huijuan1.png)
 <img src="images/huijuan1.PNG" />
-![](images/huijuan2.png)
-![](images/huijuan3.png)
-![](images/huijuan4.png)
-![](images/huijuan5.png)
-![](images/huijuan6.png)
-![](images/huijuan7.png)
+<img src="images/huijuan2.PNG" />
+<img src="images/huijuan3.PNG" />
+<img src="images/huijuan4.PNG" />
+<img src="images/huijuan5.PNG" />
+<img src="images/huijuan6.PNG" />
+<img src="images/huijuan7.PNG" />
 
 
 ## 攀岩的最高境界

@@ -7,7 +7,7 @@
 
 
 ## Johnny Harris’ Resume to Vox
-<img src="images/johnnyharris.PNG" />
+<img src="images/johnnyharris.png" />
 
 [YouTube视频：How to Force Yourself to Learn Stuff](
 https://youtu.be/hzwfWzGmCnw)
